@@ -25,7 +25,7 @@ You know how to invest, where to invest and what is the best way to save money. 
 There are hundreds of financial products out there. We show you what piece of the financial puzzle you are missing on your way to building wealth.
 
 What's Most Important
-Life is haasrd, we get that. We start by tackling your most urgent needs first - i.e. let's get rid of that credit card debt today!
+Life is hard, we get that. We start by tackling your most urgent needs first - i.e. let's get rid of that credit card debt today!
 What Can Be Improved
 Not all financial companies, products, and features are made equally. Just like the 1% always have the latest and greatest, we will make sure your personal finances are as fine-tuned as a Ferrari.
 
